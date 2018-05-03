@@ -12,7 +12,7 @@
 -> Skype: e_nunes@live.com
 -> Whatsapp: +5493412163786
 -> [Grupo do Whatsapp] (https://chat.whatsapp.com/EaoiRFXYxmdKqgmdQpWfg8) 
--> [Grupo do Discord] (https://discord.gg/nkUDKrb)
+-> [Grupo do Discord] (https://discord.gg/YZEU3FC)
 
 # Referências:
 -> [Fórum BR](http://www.tibiaking.com)
